@@ -1,4 +1,6 @@
-### Hi there 👋
+### 🎈🍄
+
+![](./210012254-234538ff-d198-48aa-8964-37e6fd45d227.gif)
 
 <!--
 **bazhkha/bazhkha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
